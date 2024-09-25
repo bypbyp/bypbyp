@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **wilson14filipe@gmail.com**
 
-- ⚡ Fun fact **I like sports**
+- ⚡ Fun fact **I like sports, gaming and music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
